@@ -15,4 +15,3 @@ Preparing a powerpoint representation to highlight our insights and analysis.
 ## Certificate
 [Link](https://forage-uploads-prod.s3.amazonaws.com/completion-certificates/British%20Airways/NjynCWzGSaWXQCxSX_British%20Airways_QxKzXzWxhzdZTfESN_1718478074841_completion_certificate.pdf)
 
-[NjynCWzGSaWXQCxSX_British Airways_QxKzXzWxhzdZTfESN_1718478074841_completion_certificate.pdf](https://github.com/user-attachments/files/15849492/NjynCWzGSaWXQCxSX_British.Airways_QxKzXzWxhzdZTfESN_1718478074841_completion_certificate.pdf)
